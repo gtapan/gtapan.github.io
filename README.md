@@ -1,3 +1,6 @@
 
-RubiscoBlack is an Environmental Technology & Services startup based in India. We are primarily focused on Carbon Capture and Sequestration.
+RubiscoBlack Environmental Technologies & Services Pvt Ltd. 
+Carbon dioxide Removal(CDR) focusssed startup.
+Nacharam-Hyderabad & Madipakkam-Chennai, India.
 Email: Knock@RubiscoBlack.com
+
